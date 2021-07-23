@@ -1,0 +1,1 @@
+se preparara un bistec asado con una ensalada de verduras clasica o si es de preferencia un guacamole sencillo
